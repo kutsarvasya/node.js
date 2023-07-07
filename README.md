@@ -13,5 +13,3 @@
 <a href="https://ibb.co/t3N1HnK"><img src="https://i.ibb.co/V3hkLb9/2023-07-08-00-20-19.png" alt="2023-07-08-00-20-19" border="0"></a>
 </li>
 </ul>
-
-<a href="https://ibb.co/9ZWXkBB"><img src="https://i.ibb.co/9ZWXkBB/2023-07-08-00-18-23.png" alt="2023-07-08-00-18-23" border="0" /></a>
